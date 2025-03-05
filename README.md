@@ -1,5 +1,4 @@
+student of 
 
-student of kjc
 
-kjc
 
